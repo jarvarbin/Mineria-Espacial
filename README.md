@@ -23,7 +23,7 @@ In the coming years, it is expected that the space mining sector will continue t
 
 Overall, the space mining sector is an exciting and rapidly growing field that has the potential to revolutionize the way we explore and utilize space.
 
-#How to invest in Space Mining?
+**How to invest in Space Mining?**
 
 There are several ways to invest in the space mining sector. Some of the most common ways to invest in this sector include:
 
